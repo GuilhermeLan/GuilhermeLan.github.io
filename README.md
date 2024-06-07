@@ -1,1 +1,0 @@
-# GuilhermeLan.github.io
